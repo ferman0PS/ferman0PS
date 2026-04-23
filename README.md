@@ -1,5 +1,5 @@
 # Olá meu nome e Fernando 👋
-sou estudande,tenho 20 anos nascido em Boa vista RR estou fazendo curso de ciências da computação na faculdade estacio
+sou estudande,tenho 20 anos nascido em Boa vista RR <img width="30" height="25" alt="image" src="https://github.com/user-attachments/assets/eacebd60-9d33-4e88-95a5-58df2c6f794f" /> estou fazendo curso de ciências da computação na faculdade estacio
 
 <img align="right" alt="josuke" width="200" height="185" alt="GokuDragonBallZGIF (2)" src="https://github.com/user-attachments/assets/d87208ff-6d89-4b10-9a5c-88d59c581fdf" />
 
