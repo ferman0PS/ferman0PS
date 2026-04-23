@@ -9,6 +9,7 @@ Apaixonado por **jogos** 🎮 se quiser jogar comigo e so adicionar na steam <im
 você pode falar comigo também pelo **Discord** <img width="25" height="20" alt="DiscordDiscordWinkGIF" src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" />
  [https://discord.gg/dMWvK3SS]
 
+[<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="25" height="20" alt="Discord">](https://discord.gg/dMWvX3S)
 
 
 
