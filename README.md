@@ -1,5 +1,5 @@
 # Olá meu nome e Fernando 👋
-sou estudande, estou fazendo curso de ciências da computação na faculdade estacio
+sou estudande,tenho 20 anos nascido em Boa vista RR estou fazendo curso de ciências da computação na faculdade estacio
 
 **Aluno** de ciências da computação
 
