@@ -11,5 +11,6 @@ você pode falar comigo também pelo **Discord**
 [<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="90" height="85" alt="Discord">](https://discord.gg/dMWvK3SS)
 
 
-[<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/688ad791-b55c-4c86-b0a8-6b414e76cab5" />] (https://jaberemboascompanhias.blogspot.com/)
+[<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/688ad791-b55c-4c86-b0a8-6b414e76cab5" />](https://jaberemboascompanhias.blogspot.com/)
+
 
