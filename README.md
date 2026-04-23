@@ -7,7 +7,7 @@ Apaixonado por **jogos** 🎮 se quiser jogar comigo e so adicionar na steam <im
  [https://steamcommunity.com/profiles/76561199455955385/]
 
 você pode falar comigo também pelo **Discord**  
-[<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="70" height="55" alt="Discord">](https://discord.gg/dMWvK3SS)
+[<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="90" height="85" alt="Discord">](https://discord.gg/dMWvK3SS)
 
 
 
