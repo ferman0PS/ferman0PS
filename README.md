@@ -5,7 +5,7 @@ sou estudande,tenho 20 anos nascido em Boa vista RR estou fazendo curso de ciên
 
 Apaixonado por **jogos** 🎮 se quiser jogar comigo e so adicionar na steam
 
-[<img src="https://github.com/user-attachments/assets/24c80fd7-f779-43d8-92ea-b86ab36e4f8f" width="90" height="85" alt="Steam">](https://steamcommunity.com/profiles/76561199455955385/)
+[<img src="https://github.com/user-attachments/assets/24c80fd7-f779-43d8-92ea-b86ab36e4f8f" width="75" height="55" alt="Steam">](https://steamcommunity.com/profiles/76561199455955385/)
 
 você pode falar comigo também pelo **Discord**  
-[<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="90" height="85" alt="Discord">](https://discord.gg/dMWvK3SS)
+[<img src="https://github.com/user-attachments/assets/63b836bb-c026-42e0-91ee-24360f32a9af" width="75" height="55" alt="Discord">](https://discord.gg/dMWvK3SS)
