@@ -1,6 +1,8 @@
 # Olá meu nome e Fernando 👋
 sou estudande,tenho 20 anos nascido em Boa vista RR estou fazendo curso de ciências da computação na faculdade estacio
 
+<img align="right" alt="josuke" width="200" height="185" alt="GokuDragonBallZGIF (2)" src="https://github.com/user-attachments/assets/d87208ff-6d89-4b10-9a5c-88d59c581fdf" />
+
 **Aluno** de ciências da computação
 
 Apaixonado por **jogos** 🎮 se quiser jogar comigo e so adicionar na steam
