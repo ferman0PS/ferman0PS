@@ -11,5 +11,5 @@ você pode falar comigo também pelo **Discord** <img width="25" height="20" alt
 
 
 
-<img width="300" height="250" alt="GokuDragonBallZGIF (2)" src="https://github.com/user-attachments/assets/86b535b1-5ad6-409d-a8f8-ac1d4013844c" />
+
 
